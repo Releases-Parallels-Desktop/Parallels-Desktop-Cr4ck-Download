@@ -1,0 +1,1 @@
+# Parallels-Desktop-Cr4ck-Download
